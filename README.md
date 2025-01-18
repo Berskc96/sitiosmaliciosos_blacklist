@@ -1,2 +1,20 @@
-# sitiosmaliciosos_blacklist
-Prueba_FW_Lotenal
+pornhub.com
+xvideos.com
+xnxx.com
+redtube.com
+youporn.com
+brazzers.com
+bangbros.com
+realitykings.com
+spankbang.com
+chaturbate.com
+myfreecams.com
+livejasmin.com
+bongacams.com
+camsoda.com
+stripchat.com
+onlyfans.com
+fapello.com
+eporner.com
+tnaflix.com
+hclips.com
